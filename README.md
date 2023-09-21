@@ -1,1 +1,0 @@
-# Allurikranthi.github.io
